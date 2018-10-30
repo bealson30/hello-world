@@ -1,3 +1,3 @@
 # hello-world
 ideas and thoughts
-Testing times in the world. Or is it?
+I deleated this line because it was gash. 
